@@ -4,6 +4,7 @@
 - 📫 How to reach me mkj731103@gmail.com
 
 - I'm attending Yeungnam University (from 2023 ~ )
+- Now i'm in military. (2024.01.15 ~ 2025.07.14 )
 
 <!---
 mseongj/mseongj is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
